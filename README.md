@@ -118,4 +118,4 @@ I used only public, secondary data and no human participants. No email text is q
 
 Chandima Sewwandi Widyathilaka Wipulaguna, MSc Applied IT student, Wintec, Hamilton, New Zealand.
 
-LinkedIn: [www.linkedin.com/in/chandima-sewwandi-88379bb1]
+LinkedIn: www.linkedin.com/in/chandima-sewwandi-88379bb1
